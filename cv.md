@@ -25,4 +25,4 @@ I'm humanitarian man, who solved chenge my live and became a technicle man. I ha
 Gomel City Vocational College of Electrical Engineering
 
 ## English #
-A2 
+A1 
